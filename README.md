@@ -1,1 +1,0 @@
-# diordna_segakcap_sppa_Sgnittes
